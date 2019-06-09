@@ -1,0 +1,2 @@
+# usefullgames.com
+PageForUrl
